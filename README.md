@@ -1,1 +1,0 @@
-# AR-Joplin7wzd9k
